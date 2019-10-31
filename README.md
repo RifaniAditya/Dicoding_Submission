@@ -6,4 +6,4 @@ Kelas : 5C<br>
 <br>
 <br>
 Bukti lulus : https://www.dicoding.com/users/588320/academies <br>
-Sertifikat : 
+Sertifikat : https://drive.google.com/file/d/1HrWFilNu9mrOLZuthKp2G1bZZtuTStur/view?usp=drivesdk
